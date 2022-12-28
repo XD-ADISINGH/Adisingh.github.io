@@ -1,6 +1,6 @@
 ## 🌟 ADI SINGH
 
-My Personal Portfolio Forked From ADI P. XD-ADISINGH
+My Personal Portfolio Forked From ADI SINGH. XD-ADISINGH
 
 ## 🤗 Meet Me :
 
